@@ -11,3 +11,8 @@ I'm especially interested in:
 - 📚 Continuous learning in hydrology, GIS, and environmental science
 
 I moslt Work with
+![Basic_ModelMuse_PEST2-1024x1024](https://github.com/user-attachments/assets/0139bc62-6995-4897-8c88-b733578ddf31)
+![GWVISTAS](https://github.com/user-attachments/assets/c984915f-072b-4632-a58f-2c035ea909f5)
+![AquiferTest](https://github.com/user-attachments/assets/a22ffb28-85ef-4bb7-85b8-af5a5d378600)
+![502019](https://github.com/user-attachments/assets/1293f6d8-a6e5-44fb-9c58-6332b8cfa2a7)
+![th](https://github.com/user-attachments/assets/15562965-80d3-4ae8-86f5-d4f43d7662bc)
