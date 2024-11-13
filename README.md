@@ -10,6 +10,13 @@ I'm especially interested in:
 - 📊 Data analysis and visualization in hydrogeology
 - 📚 Continuous learning in hydrology, GIS, and environmental science
 
+Abdulkarim Salad  
+Hydrogeologist | MSc in Integrated Water Resources Management  
+Chairman, Somali Society for Geological Survey  
+Email: Abdul.kariimak@gmail.com  
+LinkedIn: [Abdulkarim Salad](https://www.linkedin.com/in/AbdulkarimSalad)  
+GitHub: [Abdulkarim Salad Profile](https://github.com/AbdulkarimSalad/Profile)
+
 # I MOSTLY WORK WITH
 
 ![2024-11-11 10_15_27-Basic_ModelMuse_PEST2-1024x1024](https://github.com/user-attachments/assets/06ebe70d-63a9-43ea-bd7c-d61a5aefe61c)
